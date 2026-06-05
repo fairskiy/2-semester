@@ -1,1 +1,1 @@
-# 2-semester
+Kovryha Denys IM-54
